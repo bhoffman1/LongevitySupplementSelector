@@ -70,3 +70,24 @@ If you have any questions, feel free to reach out through **[Longevity FAQ](http
 ## Acknowledgments  
 
 Special thanks to the contributors at **[Longevity FAQ](https://longevityfaq.com)** for their research and dedication to improving healthspan. Don't forget to explore our **[NMN Dosage Calculator](https://longevityfaq.com/supplements/nmn-dosage-calculator/)** for another great longevity tool!
+
+---
+
+## 🌐 Connect With Me
+
+Stay connected and explore more longevity research, updates, and content here:
+
+- 🧬 **Patreon (Support the Project):**  
+  https://www.patreon.com/cw/LongevityFAQ
+
+- 📘 **Facebook Page:**  
+  https://www.facebook.com/LongevityFAQ
+
+- ▶️ **YouTube Channel:**  
+  https://www.youtube.com/@longevityfaq
+
+- 🔗 **Bio & Resources Page:**  
+  https://bio.site/longevityfaq
+
+- 🌱 **LinkHub (All Links In One Place):**  
+  https://linktr.ee/benjhoffman
